@@ -1,6 +1,6 @@
 ### Welcome to my profile 😄 
 
-![Violeta Rosa Simple Gradientes Tecnología 5G Presentación de Tecnología](https://www.canva.com/design/DAFZjGgPgDQ/ja8moWvdEMatZoY3XZvKNw/edit?utm_content=DAFZjGgPgDQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+![Violeta Rosa Simple Gradientes Tecnología 5G Presentación de Tecnología](https://www.canva.com/design/DAFZjGgPgDQ/ja8moWvdEMatZoY3XZvKNw/view?utm_content=DAFZjGgPgDQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
 My name is Silvia Falcón,
